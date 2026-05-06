@@ -1,2 +1,2 @@
-# Ayesha-Naime
+# Ayesha Shamim Naime - A portfolio
 Portfolio Website meant to showcase my skills, independent projects and certifications
